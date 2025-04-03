@@ -1,2 +1,2 @@
 # tharunhk789
-Pes College
+pes polytechnic
